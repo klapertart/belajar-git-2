@@ -3,7 +3,7 @@
 2. Sholat.
 3. Zakat.
 4. Puasa
-5. asdfasdfaf. 
+5. Berangkat haji bagi yang mampu. 
 
 
 ###Rukun Iman
