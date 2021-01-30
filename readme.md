@@ -4,3 +4,7 @@
 3. Zakat.
 4. Puasa
 5. asdfasdfaf. 
+
+
+###Rukun Iman
+1. Iman kepada Alloh SWT.
