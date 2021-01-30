@@ -1,4 +1,4 @@
-###Rukun Islam
+### Rukun Islam
 1. Syahadat.
 2. Sholat.
 3. Zakat.
@@ -6,7 +6,7 @@
 5. Berangkat haji bagi yang mampu. 
 
 
-###Rukun Iman
+### Rukun Iman
 1. Iman kepada Alloh SWT.
 2. Iman kepada Malaikat.
 3. Iman kepada Kitab.
