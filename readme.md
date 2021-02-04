@@ -10,3 +10,4 @@
 1. Iman kepada Alloh SWT.
 2. Iman kepada Malaikat.
 3. Iman kepada Kitab.
+4. Iman kepada Rosul
